@@ -1,1 +1,0 @@
-Father of the Bride este o comedie romantica ce îi are pe afis pe Andy García și Gloria Estefan. Filmul este inspirat din romanul cu același nume de la sfărsitul anilor 40. Au mai existat incă două filme insirate de acest roman.
