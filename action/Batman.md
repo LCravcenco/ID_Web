@@ -1,0 +1,1 @@
+Despre The Batman se poate spune în câteva cuvinte că este lung și atmosfera sa este una apăsătoare, deprimantă, dark. Asta nu înseamnă însă că nu este reușit, deși nu împacă toate gusturile. Interpretat de Robert Pattinson, Bruce Wayne a devenit Batman abia de doi ani. Într-un Gotham acaparat de criminalitate, eroul deja se întreabă dacă misiunea sa are vreun sens. 
