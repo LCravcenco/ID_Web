@@ -1,0 +1,1 @@
+În filmul Hustle Adam Sandler îl interpretează pe Stanley, un căutător internațional de talente pentru NBA. Stanley încearcă să găsescă un jucător valoros care îi va pemite să ajungă antrenor secund în NBA. În prezent el călătorește prin toată lumea în căutarea unui posibil viitor star NBA.
